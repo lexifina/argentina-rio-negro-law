@@ -1,0 +1,14 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 3164
+Aprobada en 1ª Vuelta: 19/11/1997 - B.Inf. 50/1997
+Sancionada: 11/12/1997
+Promulgada: 23/12/1997 - Decreto: 1831/1997
+Boletín Oficial: 01/01/1998 - Nú: 3534
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+LEY DE EQUIPARACION DE OPORTUNIDADES
+PARA PERSONAS SORDAS E HIPOACUSICAS
+CAPITULO I
+Criterios generales
