@@ -1,0 +1,12 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 3608
+Aprobada en 1ª Vuelta: 21/11/2001 - B.Inf. 61/2001
+Sancionada: 26/01/2002
+Promulgada: 08/02/2002 - Decreto: 120/2002
+Boletín Oficial: 25/02/2002 - Nú: 3970
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+CAPITULO I
+DISPOSICIONES GENERALES
