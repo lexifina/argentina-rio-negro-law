@@ -1,0 +1,1 @@
+ARTICULO 2.- Las funciones relacionadas con la aplicación de la Ley Nro. 20.247 de Semillas y Creaciones Fitogenéticas en las que podrá participar la Provincia, se limitarán a la fis- calización de la producción y comercialización de plantas fru- tales.
