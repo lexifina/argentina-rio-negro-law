@@ -1,0 +1,3 @@
+Artículo 8. El gobierno provincial reivindicará, dentro de los dos años de la sanción de esta Constitución, los límites fijados en la misma, los que son la base de los acuerdos
+114
+interprovinciales y de la interposición de las acciones. Merecen especial consideración la reivindicación, deslinde y amojonamiento de los territorios afectados por la errónea traza del meridiano diez grados oeste de Buenos Aires, el paralelo cuarenta y dos grados de latitud sur, el dominio sobre el lago Nahuel Huapi, isla Victoria e islas sobre los cursos de los ríos Colorado, Neuquén y Limay. La Provincia desconoce expresamente la existencia de la denominada ley de facto Nº 18.501.

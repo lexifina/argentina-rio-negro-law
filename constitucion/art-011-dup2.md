@@ -1,0 +1,1 @@
+Artículo 11. Hasta tanto se produzca la plena federalización prevista en el Artículo 5º de la ley Nº 23.512, rigen en el territorio cedido por ley Nº 2.086 las disposiciones legales actualmente vigentes, esta Constitución y las normas que en su consecuencia se dicten.

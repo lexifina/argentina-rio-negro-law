@@ -1,0 +1,1 @@
+Artículo 16. Los municipios que a la fecha de la sanción de esta Constitución estuvieren reconocidos como tales, aún cuando no alcancen el mínimo de habitantes que ésta establece, conservarán su carácter de municipios.

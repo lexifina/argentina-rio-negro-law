@@ -1,0 +1,1 @@
+Artículo 13. Los entes y el régimen de designación y remoción de magistrados y funcionarios judiciales previstos por la anterior Constitución, seguirán operando como tales hasta el treinta y uno de diciembre de mil novecientos ochenta y ocho, salvo que antes de esa fecha entren en funcionamiento los organismos que determina esta Constitución.

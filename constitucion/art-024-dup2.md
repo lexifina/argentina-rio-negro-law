@@ -1,0 +1,1 @@
+Artículo 24. El texto constitucional sancionado por esta Convención Constituyente reemplaza al hasta ahora vigente. Esta Constitución regirá a partir del día cuatro de junio de mil novecientos ochenta y ocho. Quedan automáticamente derogadas las prescripciones normativas opuestas a esta Constitución.

@@ -1,0 +1,1 @@
+Artículo 17. El régimen de gobierno y los mandatos de las actuales autoridades municipales, elegidas conforme a la Constitución anterior, continúan vigentes hasta el diez de diciembre de mil novecientos ochenta y nueve.

@@ -1,0 +1,1 @@
+Artículo 20. En el plazo de un año, a partir de la sanción de la presente Constitución, los municipios podrán comenzar a percibir el impuesto inmobiliario coparticipando a la Provincia de acuerdo a la ley-convenio que se dicte sobre la materia de acuerdo a lo establecido en esta Constitución.
