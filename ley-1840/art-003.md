@@ -1,0 +1,1 @@
+Artículo 3º.- Comuníquese al Poder Ejecutivo y archívese.
