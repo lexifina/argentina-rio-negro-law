@@ -1,0 +1,1 @@
+artículo 3º para proyectar conjuntamente con la repartición de Parques Nacionales las bases de demarcación de nuestras áreas de monumentos naturales y/o regiones vírgenes que, delimitados técnica y racionalmente, se incluirán por Ley especial dentro del sistema determinado por la Ley Nacional nº 12.103 y sus complementarias contemplándose la posibilidad de un convenio.
