@@ -1,0 +1,1 @@
+Artículo 3º.- A los efectos de esta ley, se consideran disca pacitadas las personas que, siendo legalmente hábiles para contratar, padezcan una disfunción física perma nente que implique desventajas considerables para su integra ción social y laboral y que no posean ingresos de ninguna índole, con la sola excepción de las llamadas pensiones graciables del orden provincial.
