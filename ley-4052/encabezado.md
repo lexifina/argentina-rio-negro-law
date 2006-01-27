@@ -1,0 +1,10 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 4052
+Aprobada en 1ª Vuelta: 28/11/2005 - B.Inf. 58/2005
+Sancionada: 29/12/2005
+Promulgada: 30/12/2005 - Decreto: 1980/2005
+Boletín Oficial: 19/01/2006 - Nú: 4378
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
