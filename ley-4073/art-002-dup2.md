@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO: Sobre la base de la actual "ORGANIZACION FEDERAL DE ESTADOS PRODUCTORES DE HIDROCARBUROS -OFEPHI", una Asamblea especialmente convocada podrá transformar la misma o crear un ENTE INTERPROVINCIAL DE LOS HIDROCARBUROS, con las bases y objetivos que se prevén en el Anexo II al presente.
