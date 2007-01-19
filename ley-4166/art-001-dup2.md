@@ -1,0 +1,1 @@
+Artículo 1º.- AMBITO DE APLICACION: La presente regula el abordaje a seguir en la promoción, prevención y atención del Virus de Inmunodeficiencia Humana (VIH) y Síndrome de Inmunodeficiencia Adquirida (SIDA) en el ámbito de la Provincia de Río Negro.
