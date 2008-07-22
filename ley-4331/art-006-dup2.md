@@ -1,0 +1,1 @@
+Artículo 6º.- Establecer una directa relación de apoyo con las entidades científicas, asociaciones civiles y O.N.Gs que a la fecha de la sanción de la presente estén desarrollando actividades inherentes al objetivo de la misma, en el territorio nacional, o a nivel internacional.
