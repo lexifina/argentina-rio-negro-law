@@ -1,0 +1,1 @@
+Artículo 1º.- Los meteoritos y demás cuerpos celestes que se encuentren o ingresen en el futuro al territorio argentino, su espacio aéreo y aguas jurisdiccionales son bienes culturales en los términos del primer párrafo del artículo 2º de la ley nº 25.197.
