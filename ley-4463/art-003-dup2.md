@@ -1,0 +1,1 @@
+ARTICULO 3º — Invítase a las provincias y a la Ciudad Autónoma de Buenos Aires a adherir al régimen establecido por la presente ley.
