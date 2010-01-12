@@ -1,0 +1,1 @@
+Artículo 3º.- La Provincia de Río Negro podrá garantizar las obligaciones que asuma Viviendas Rionegrinas S.E., con motivo de créditos tomados ante organismos oficiales nacionales o internacionales para su objeto específico.

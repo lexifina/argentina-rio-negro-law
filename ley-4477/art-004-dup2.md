@@ -1,0 +1,1 @@
+Artículo 4º.- La sociedad tiene por finalidad contribuir a la solución habitacional, procurando la edificación y mejoramiento de la vivienda y sus servicios esenciales, como así también de las obras de infraestructura destinadas a actividades de interés público, social o económico.
