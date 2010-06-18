@@ -1,0 +1,1 @@
+Artículo 18 Los textos en árabe, chino, español, francés, inglés y ruso del presente Protocolo serán igualmente auténticos. EN TESTIMONIO DE LO CUAL, los plenipotenciarios abajo firmantes, debidamente autorizados por sus respectivos gobiernos, firman el presente Protocolo.

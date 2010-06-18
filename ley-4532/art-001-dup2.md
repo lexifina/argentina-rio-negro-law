@@ -1,0 +1,1 @@
+Artículo 1º.- Apruébase la Convención sobre los Derechos de las Personas con Discapacidad y su Protocolo Facultativo, aprobados mediante resolución de la Asamblea General de Naciones Unidas A/ RES/ 61/ 106, el día 13 de diciembre de 2006. Ambos instrumentos jurídicos forman parte del presente como “Anexo 1” y “Anexo 2” respectivamente.
