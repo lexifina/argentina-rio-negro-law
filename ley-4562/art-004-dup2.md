@@ -1,0 +1,3 @@
+Artículo 4º.- Las cuestiones de carácter confidencial de que tengan conocimiento los funcionarios encargados de hacer cumplir la ley se mantendrán en secreto, a menos que el cumplimiento del deber o las necesidades de la justicia exijan estrictamente lo contrario.
+Comentario:
+Por la naturaleza de sus funciones, los funcionarios encargados de hacer cumplir la ley obtienen información que puede referirse a la vida privada de las personas o redundar en perjuicio de los intereses, especialmente la reputación, de otros. Se tendrá gran cuidado en la protección y el uso de tal información, que sólo debe revelarse en cumplimiento del deber o para atender las necesidades de la justicia. Toda revelación de tal información con otros fines es totalmente impropia.
