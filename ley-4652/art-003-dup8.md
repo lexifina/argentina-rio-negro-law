@@ -1,0 +1,1 @@
+ARTÍCULO 3.04. Intereses. (a) Los intereses se devengarán sobre los saldos deudores diarios del Préstamo a una tasa anual para cada Trimestre determinada por el Banco en una Fecha de Determinación de la Tasa de Interés Basada en LIBOR para cada Trimestre, calculada de la siguiente forma: (i) la respectiva Tasa de Interés LIBOR, conforme se define en el

@@ -1,0 +1,1 @@
+ARTÍCULO 4.04. Desembolsos para Cooperación Técnica. Si las Estipulaciones Especiales contemplaran Financiamiento de gastos para Cooperación Técnica, los desembolsos para ese propósito podrán efectuarse una vez que se hayan cumplido los requisitos establecidos en los incisos (a) y (b) del Artículo 4.01 y en el Artículo 4.03 de estas Normas Generales.

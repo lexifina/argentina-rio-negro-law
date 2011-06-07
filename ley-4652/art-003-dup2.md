@@ -1,0 +1,2 @@
+Artículo 3.04 de las Normas Generales para un Préstamo de la Facilidad Unimonetaria con Tasa de Interés Basada en LIBOR. El Banco notificará al Prestatario, tan pronto como sea posible después de su determinación, acerca de la tasa de interés aplicable durante cada Trimestre.
+(b) Los intereses se pagarán al Banco semestralmente los días __ de los meses de ___________ y ________, comenzando el _____________,3 teniendo en cuenta lo previsto en el

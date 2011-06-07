@@ -1,0 +1,1 @@
+ARTÍCULO 3.14. Lugar de los pagos. Todo pago deberá efectuarse en la oficina principal del Banco en Washington, Distrito de Columbia, Estados Unidos de América, a menos que el Banco designe otro lugar o lugares para este efecto, previa notificación escrita al Prestatario.

@@ -1,0 +1,1 @@
+ARTÍCULO 6.02. Precios y licitaciones. Los contratos para ejecución de obras, adquisición de bienes y prestación de servicios para el Proyecto se deberán pactar a un costo razonable que será generalmente el precio más bajo del mercado, tomando en cuenta factores de calidad, eficiencia y otros que sean del caso.
