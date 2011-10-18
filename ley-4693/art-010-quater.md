@@ -1,0 +1,1 @@
+Artículo 10 quater.- La comisión creada en el artículo 10 bis será convocada por la Comisión de Cultura, Educación y Comunicación Social y deberá reunirse por lo menos dos (2) veces al año a fin de elaborar el diagnóstico, seguimiento y evaluación de la aplicación de la presente ley y proponer modificaciones y mejoras en el Sistema Bibliotecario Provincial”.
