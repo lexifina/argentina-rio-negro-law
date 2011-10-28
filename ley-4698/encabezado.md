@@ -1,0 +1,10 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 4698
+Aprobada en 1ª Vuelta: 16/06/2011 - B.Inf. 25/2011
+Sancionada: 07/07/2011
+Promulgada: 13/10/2011 - Promulgacióe Hecho
+Boletín Oficial: 20/10/2011 - Nú: 4979
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
