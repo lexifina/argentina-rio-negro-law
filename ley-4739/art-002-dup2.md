@@ -1,0 +1,1 @@
+artículo 2º en abogados integrantes de la Fiscalía de Estado, abogados dependientes de la administración provincial o en abogados de la matrícula, en los casos y circunstancias en que lo estime conveniente. Los sustituyentes actuarán en un todo de acuerdo con las instrucciones que el Fiscal de Estado les imparta”.
