@@ -1,0 +1,1 @@
+Artículo 2º.- Dentro del plazo de treinta (30) días, contados desde la publicación de la reglamentación de la presente (ley nº 40), entrará en vigencia la publicación web de la edición digital del Boletín Oficial.

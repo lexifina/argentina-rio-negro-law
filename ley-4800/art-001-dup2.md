@@ -1,0 +1,1 @@
+Artículo 1º.– El Boletín Oficial de la Provincia de Río Negro es el periódico oficial de la Provincia de Río Negro. Funcionará en la órbita del Poder Ejecutivo Provincial, quien dispondrá y mantendrá el mismo de conformidad con la reglamentación que a tal efecto dicte.

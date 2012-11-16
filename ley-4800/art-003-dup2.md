@@ -1,0 +1,1 @@
+Artículo 3º.- Derógase la ley nº 4767.
