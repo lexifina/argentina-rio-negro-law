@@ -1,0 +1,3 @@
+Artículo 4º.- Comuníquese al Poder Ejecutivo y archívese.
+Legislatura de la Provincia
+de Río Negro
