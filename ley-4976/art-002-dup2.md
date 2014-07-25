@@ -1,0 +1,1 @@
+Artículo 2º.- El Instituto Nacional Central Único Coordinador de Ablación e Implante (Incucai) en coordinación con los organismos jurisdiccionales de procuración y trasplante, extenderá un certificado - credencial cuya sola presentación sirve para acreditar la condición de beneficiario conforme el artículo 1° de la presente ley.
