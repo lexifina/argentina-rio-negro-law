@@ -1,0 +1,1 @@
+Artículo 23 sexies.- Personal comprendido. Ingreso. Incluye al personal que desempeña exclusivamente tareas de choferes de ambulancias de cualquier tipo, se exige similares requisitos que para el agrupamiento choferes oficiales, salvo que se les exige licencia habilitante de conducir categoría profesional, e ingresan por la categoría (3).
