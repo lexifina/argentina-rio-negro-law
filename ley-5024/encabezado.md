@@ -1,0 +1,11 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5024
+Sancionada: 22/12/2014
+Promulgada: 30/12/2014 - Decreto: 1803/2014
+Boletín Oficial: 12/01/2015 - Nú: 5319
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+TITULO I
+CODIGO FISCAL
