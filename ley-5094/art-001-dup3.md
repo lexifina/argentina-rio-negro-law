@@ -1,0 +1,1 @@
+Artículo 1°: Créase un régimen especial para los servicios de transporte turístico terrestre con el objeto de otorgar los permisos correspondientes para operar en el denominado Corredor de los Lagos Andino Patagónicos, ubicados en las provincias del Neuquén, Río Negro, Chubut, Santa Cruz y Tierra del Fuego, Antártida e Islas del Atlántico Sur.
