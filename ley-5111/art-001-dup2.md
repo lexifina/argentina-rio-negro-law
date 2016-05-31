@@ -1,0 +1,1 @@
+Artículo 1º.- Aprobar el proyecto de modificación del artículo 55 de la ley K nº 2430, que como anexo 1 integra la presente para su remisión a la Legislatura de la Provincia, en uso del derecho de iniciativa Legislativa otorgado por el inciso 4to. del artículo 206 de la Constitución Provincial.
