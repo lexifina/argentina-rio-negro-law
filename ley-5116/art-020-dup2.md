@@ -1,0 +1,2 @@
+Artículo 20.- EXCEPCION: Quedan exceptuados del régimen del artículo 19 inciso i), el ejercicio de cargos docentes, siempre que no medie superposición horaria con la función pública y con los límites que establezca la legislación específica.
+También quedan exceptuados del régimen de incompatibilidades del artículo 19, el ejercicio del rol de mediadores judiciales inscriptos en el registro previsto en la ley P nº 3847, en las mismas condiciones y limitaciones”.
