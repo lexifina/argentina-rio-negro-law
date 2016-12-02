@@ -1,0 +1,1 @@
+ARTICULO 2º — Se define Aceite de Oliva Argentino al industrializado en la República Argentina, utilizando únicamente como materia prima aceitunas que sean íntegramente cosechadas en territorio argentino, cuya composición se ajuste a lo establecido en el artículo 535 del Código Alimentario Nacional, ley 18.284 y normas complementarias y las que en el futuro se dicten.
