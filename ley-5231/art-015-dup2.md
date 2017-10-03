@@ -1,0 +1,16 @@
+Artículo 15.- Los Terapeutas Ocupacionales, Terapistas Ocupacionales o Licenciados en Terapia Ocupacional tendrán los siguientes deberes y obligaciones:
+a) Respetar en todas sus acciones la dignidad de la persona
+humana, sin distinción de ninguna naturaleza, acorde a los principios establecidos en la ley 26529;
+b) Efectuar interconsultas con otros profesionales de la
+salud;
+c) Efectuar y recibir derivaciones de y hacia otros
+profesionales de la salud cuando la naturaleza del problema así lo requiera;
+d) Guardar secreto profesional con sujeción a lo
+establecido por la legislación vigente en la materia;
+e) Emitir informes de sus prestaciones en terapia
+ocupacional que contribuyan al proceso de evaluación, promoción, atención y recuperación del desempeño ocupacional;
+f) Prestar colaboración cuando les sea requerida por las
+autoridades sanitarias en caso de epidemias, desastres u otras emergencias;
+g) Fijar domicilio profesional en la jurisdicción que
+corresponda.
+CAPITULO IX PROHIBICIONES

@@ -1,0 +1,1 @@
+Artículo 4º.- El digesto, en oportunidad de la realización de la consolidación normativa, debe proceder a realizar el corrimiento de los artículos que fuere necesario, en virtud de las incorporaciones introducidas por medio de la presente.
