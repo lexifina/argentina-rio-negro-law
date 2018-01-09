@@ -1,0 +1,10 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5264
+Sancionada: 22/12/2017
+Promulgada: 27/12/2017 - Decreto: 2040/2017
+Boletín Oficial: 01/01/2018 - Nú: 5631
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+TITULO I CODIGO FISCAL
