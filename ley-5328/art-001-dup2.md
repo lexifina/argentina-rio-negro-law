@@ -1,0 +1,1 @@
+artículo 1° debe entenderse como base mínima de integración de cargos en la Administración Pública Provincial. Las vacantes producidas en los cargos correspondientes a las personas comprendidas en esta ley, se reservarán exclusivamente para personas travestis, transexuales y transgéneros, salvo regímenes especiales de contratación.
