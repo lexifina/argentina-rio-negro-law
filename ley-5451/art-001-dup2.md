@@ -1,0 +1,1 @@
+Artículo 1º.- Aprobar el proyecto de iniciativa legislativa elaborado por el Superior Tribunal de Justicia en uso del derecho otorgado por el inciso 4° del artículo 206 de la Constitución Provincial que como anexo I forma parte integrante de la presente, y remitirlo a la Legislatura Provincial.
