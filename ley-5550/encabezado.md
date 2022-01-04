@@ -1,0 +1,11 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5550
+Sancionada: 17/12/2021
+Promulgada: 20/12/2021 - Decreto: 1620/2021
+Boletín Oficial: 27/12/2021 - Nú: 6045
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+TITULO I
+CODIGO FISCAL
