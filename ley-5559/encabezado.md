@@ -1,0 +1,11 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5559
+Sancionada: 20/04/2022
+Promulgada: 02/05/2022 - Decreto: 313/2022
+Boletín Oficial: 02/05/2022 - Nú: 6079
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+CAPÍTULO I
+DISPOSICIONES GENERALES
