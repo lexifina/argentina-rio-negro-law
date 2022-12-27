@@ -1,0 +1,1 @@
+ARTÍCULO 1°.- Tanto los efectores públicos, las obras sociales, como las empresas de medicina privada y/o entidades de medicina prepaga, deberán instrumentar las medidas y ejecutar los cambios necesarios para garantizar el cumplimiento de la Ley N° 25929.

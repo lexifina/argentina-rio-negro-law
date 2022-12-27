@@ -1,0 +1,1 @@
+Artículo 1º.- El objeto de la presente es brindar un instrumento legal que asegure el ejercicio de los derechos de la persona gestante y le permita resguardar su salud y la del niño o niña en gestación.

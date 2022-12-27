@@ -1,0 +1,1 @@
+ARTÍCULO 6°.- Las prescripciones contenidas en el artículo 6° de la Ley N° 25.929 deberán ser interpretadas y aplicadas en los términos de las Leyes N° 23.660, N° 23.661, N° 26.061, N° 26.529, N° 26.485, N° 26.682, y N° 26.743, normas reglamentarias, complementarias y concordantes.
