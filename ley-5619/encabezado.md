@@ -1,0 +1,11 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5619
+Sancionada: 21/12/2022
+Promulgada: 28/12/2022 - Decreto: 1641/2022
+Boletín Oficial: 29/12/2022 - Nú: 6147
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+TÍTULO I
+IMPUESTO INMOBILIARIO
