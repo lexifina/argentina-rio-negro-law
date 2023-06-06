@@ -1,0 +1,4 @@
+Artículo 120.- Retención directa y embargo sobre sueldo y otra remuneración. Ejecución. Si la persona alimentante
+Legislatura de la Provincia
+de Río Negro
+posee un empleo en relación de dependencia, la judicatura puede ordenar la retención directa de sus haberes. Quien no cumple la orden judicial de depositar en la cuenta judicial abierta al efecto la suma que debió descontar resulta deudora solidaria de la obligación alimentaria conforme con el artículo 551 del Código Civil y comercial de la Nación. En todos los casos, ante el incumplimiento del alimentante dentro del quinto día de intimado al pago, si no lo hubiere hecho efectivo, sin otra sustanciación se debe proceder al embargo y decretar la venta de los bienes necesarios para cubrir el importe de la deuda. Asimismo, procederá la inhibición general de bienes y/o cualquiera de las medidas cautelares, debiendo en tales casos registrarse la causal alimentaria.

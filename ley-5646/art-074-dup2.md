@@ -1,0 +1,1 @@
+Artículo 74.- Formas de concesión. La apelación contra la sentencia definitiva en proceso ordinario y sumarísimo se concede libremente. En los demás casos el recurso se concede en relación. En todos los casos la sustanciación se realiza en la Cámara.

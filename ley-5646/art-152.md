@@ -1,0 +1,1 @@
+Artículo 152.- Apelación. La resolución que admite o deniega medidas protectorias y provisorias solo puede impugnarse por vía de apelación dentro de los cinco (5) días de notificada la que se concede en relación y con efecto devolutivo, salvo que la judicatura entienda procedente al caso el efecto suspensivo, lo que debe ser debidamente fundado.

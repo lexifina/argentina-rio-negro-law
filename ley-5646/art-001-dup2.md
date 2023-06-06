@@ -1,0 +1,5 @@
+Artículo 1º.- Se modifican los artículos 1º; 23; 72; 74; 75; 76; 78; 79; 85; 87; 113; 115; 120; 122; 129; 152; 161; 166; y 226 del Anexo del Código Procesal de Familia -Ley 5396- los que quedan redactados de la siguiente forma:
+“Artículo 1º.- Proceso por audiencias. Los procesos de
+familia se desarrollan mediante audiencias, excepto disposición en contrario. El trámite debe conducirse observando los principios de inmediación, celeridad, concentración, saneamiento y eventualidad. Las audiencias pueden ser presenciales, semipresenciales o remotas conforme lo considere apropiado la judicatura.
+Legislatura de la Provincia
+de Río Negro

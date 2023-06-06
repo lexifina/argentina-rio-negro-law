@@ -1,0 +1,1 @@
+Artículo 78.- Apelación en subsidio. Una vez recibidas las actuaciones, la Cámara evalúa los términos de la apelación y decide según su mejor criterio, si convoca a audiencia o resuelve el asuntos por escrito.

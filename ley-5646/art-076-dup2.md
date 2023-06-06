@@ -1,0 +1,1 @@
+Artículo 76.- Trámite. La apelación contra la sentencia definitiva o interlocutoria que tenga efectos de tal, tramita por audiencia. La Cámara, por resolución debidamente fundada, puede prescindir de la audiencia cuando la naturaleza de la cuestión apelada resulte apropiada.

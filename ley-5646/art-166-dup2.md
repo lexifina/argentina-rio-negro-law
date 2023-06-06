@@ -1,0 +1,1 @@
+Artículo 166.- Recursos. La resolución que decide sobre la legalidad de las medidas de protección excepcionales es susceptible de se apelada. La misma se concede en relación y con efecto devolutivo. El expediente se eleva a la Cámara dentro de un (1) día y debe ser resuelto dentro de los cinco (5) días posteriores a su recepción.

@@ -1,0 +1,3 @@
+Artículo 87.- Honorarios. Toda regulación de honorarios es apelable y puede fundarse.
+El plazo para apelar es de cinco (5) días.
+En caso de que la apelación sea fundada, se sustancia con el obligado al pago en primera instancia y se eleva a la Cámara.

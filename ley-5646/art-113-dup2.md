@@ -1,0 +1,1 @@
+Artículo 113.- Apelación. La resolución es apelable dentro de los cinco (5) días. El recurso se concede con efecto devolutivo, con excepción de que implique el cambio de radicación del niño, niña o adolescente de que se trate en cuyo caso el efecto es suspensivo.

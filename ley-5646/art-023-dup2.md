@@ -1,0 +1,7 @@
+Artículo 23.- Notificación personal o por cédula. Sólo se notifican personalmente o por cédula las siguientes resoluciones:
+a) La que dispone el traslado de la demanda.
+b) La que declara la rebeldía, que debe notificarse al domicilio real.
+c) La que ordena intimaciones o apercibimientos no establecidos directamente por la ley.
+d) La que hace saber medidas cautelares, su modificación o sustitución.
+e) La que dispone la citación de personas extrañas al proceso.
+f) La que la judicatura disponga por resolución fundada para asegurar la garantía de la defensa en juicio y el ejercicio de los derechos de las partes o terceros involucrados en la litis, la que es irrecurrible.
