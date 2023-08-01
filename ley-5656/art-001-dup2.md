@@ -1,0 +1,5 @@
+Artículo 1º- Todo deportista aficionado que como consecuencia de su actividad sea designado para intervenir en campeonatos regionales selectivos, dispuestos por los organismos competentes de su deporte en los campeonatos argentinos para integrar delegaciones que figuren regular y habitualmente en el
+calendario
+de
+las
+organizaciones internacionales, podrá disponer de una licencia especial deportiva en sus obligaciones laborales, tanto en el sector público como en el privado, para su preparación y/o participación en las mismas.
