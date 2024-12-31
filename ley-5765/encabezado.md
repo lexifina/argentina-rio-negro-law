@@ -1,0 +1,10 @@
+Legislatura de la Provincia
+de Río Negro
+LEY Nº 5765
+Sancionada: 17/12/2024
+Promulgada: 20/12/2024 - Decreto: 539/2024
+Boletín Oficial: 23/12/2024 - Nú: 6348
+LA LEGISLATURA DE LA PROVINCIA DE RIO NEGRO
+SANCIONA CON FUERZA DE
+L E Y
+TITULO I CÓDIGO FISCAL
