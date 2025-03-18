@@ -1,0 +1,1 @@
+ARTÍCULO 1º.- Convocar a la Legislatura de la Provincia de Río Negro a Sesión Extraordinaria, para el día 28 de febrero de 2.025 a las 08:00 hrs, en la cual se dará tratamiento de los Proyectos de Ley que se detallan en el anexo IF- 2025-00156852-GDERNE-RNE, que forma parte integrante del presente Decreto.
