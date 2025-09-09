@@ -1,0 +1,1 @@
+Artículo 1º.- Se establece que toda persona o grupo consagrado, que se ha destacado en la Provincia de Río Negro, en el estudio, la profesión, el oficio, la actividad comunitaria, la actividad cultural, actividad deportiva, entre otras, tiene derecho a las distinciones , reconocimientos o imposición de nombres que se instituyen en la presente.

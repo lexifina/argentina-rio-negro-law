@@ -1,0 +1,5 @@
+Artículo 2º.- Comuníquese al Poder Ejecutivo y archívese.
+Aprobado en General y en Particular por Unanimidad Votos Afirmativos: ACEVEDO Javier E., AGOSTINO Daniela B., BELLOSO Daniel R., BERNATENE Ariel R., BERROS José L., CÉVOLI María Celia, CIDES Juan Elbi, DANTAS Pedro C., DELGADO SEMPÉ Luciano J., DOCTOROVICH Claudio A., DOMÍNGUEZ César R.,
+Legislatura de la Provincia
+de Río Negro
+ESCUDERO María Andrea, FREI María L., FRUGONI Fernando G., GARCÍA Leandro G., GONZÁLEZ ABDALA Marcela H., IBARROLAZA Santiago, IVANCICH Luis A., KIRCHER Aime M., LACOUR Martina V., LÓPEZ Facundo M., MANSILLA Elba Y., MARKS Ana I., MARTIN Juan C., MATZEN Lorena M., MC KIDD María P., MORALES Silvia B., MORENO Norberto E., MURILLO ONGARO Juan S., NOALE Luis A., ODARDA María M., PICA Lucas R., PICOTTI Gabriela A., PILQUINAO Carmelio F., REYNOSO Natalia E., ROSSIO María M., SAN ROMÁN Gustavo M., SANGUINETTI Daniel H., SCAVO Roberta, SPÓSITO Ayelén, STUPENENGO Ofelia I., SZCZYGOL Marcelo F., VALERI Carlos A., YAUHAR Soraya E., YENSEN Lorena R., ZGAIB Luis F.
