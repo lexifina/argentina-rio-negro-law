@@ -1,0 +1,1 @@
+Artículo 30 ter.- Se autoriza a las autoridades provinciales y municipales competentes a organizar, auspiciar y coordinar festivales, campeonatos, clínicas, encuentros educativos y demás actividades culturales, deportivas y turísticas relacionadas con la pesca deportiva, con el fin de consolidar a Dina Huapi como un destino turístico integral en esta materia”.
