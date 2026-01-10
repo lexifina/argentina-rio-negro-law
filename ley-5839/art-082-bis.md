@@ -1,0 +1,1 @@
+ART. 82 bis.- El principio de igualdad de género y no discriminación informará el desempeño de la profesión judicial, tanto en las relaciones internas de los poderes judiciales como en el ejercicio de la jurisdicción, con el fin de garantizar el acceso a la justicia.

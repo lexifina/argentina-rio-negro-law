@@ -1,0 +1,1 @@
+ART. 82 ter.- La judicatura debe administrar justicia eliminando los sesgos, las brechas y los estereotipos de género en el conocimiento y decisión de los casos, para lo cual es esencial incorporar la perspectiva de género y la interseccionalidad como herramientas de análisis para el adecuado ejercicio de la función jurisdiccional.

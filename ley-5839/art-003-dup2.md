@@ -1,0 +1,1 @@
+ART. 3°.- El juez, con sus actitudes y comportamientos, debe poner de manifiesto que no recibe influencias -directas o indirectas- de ningún otro poder público o privado, bien sea externo o interno al orden judicial.
