@@ -1,0 +1,10 @@
+# Ley 4.240: Modifica artículos 4º y 8º de la ley nº 4113 del régimen provincial de excepción para el otorgamiento de escrituras traslativas de dominio de inmuebles destinados a vivienda única y permanente construidas por el IPPV.
+
+Ley 4.240 · 1 versions, from 2007-12-11 (latest in force: 2007-12-11) · <https://web.legisrn.gov.ar/legislativa/legislacion/ver?id=7768>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Artículo 1 | [art-001.md](art-001.md) | 0 |  |
+| Artículo 2 | [art-002.md](art-002.md) | 0 |  |
+| Artículo 3 | [art-003.md](art-003.md) | 0 |  |
+| Encabezado | [encabezado.md](encabezado.md) | 0 |  |

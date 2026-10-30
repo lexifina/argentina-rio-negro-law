@@ -1,0 +1,11 @@
+{
+  "path": "ar-r",
+  "code": "AR-R",
+  "name": "Río Negro",
+  "level": "province",
+  "parent": "ar",
+  "repo": "https://github.com/lexifina/argentina-rio-negro-law",
+  "build": "built: constitution, codes and laws (1739 norms, 1739 versions) from https://web.legisrn.gov.ar/",
+  "language": "es",
+  "sources": 1
+}
